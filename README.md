@@ -1,2 +1,2 @@
 # maipilive.github.io
-个人博客
+摄影博客
